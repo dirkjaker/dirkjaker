@@ -1,9 +1,9 @@
 
  ![alt text](https://64.media.tumblr.com/e7383e93fddde1250ffc9a033e04a95b/2437746d7e8289f8-85/s540x810/f88c64c5de48d87f354f21b58fccf31cfe66edec.gif)
  
-I am almost always in the __homestuck__ area
+I am almost always in the __homestuck__ area .
 
-Cuddle + Hide + Whis / Int is allowed. 
+Cuddle + Hide + Whis / Int is allowed . 
 
 I am usually nervous around new people . (I'll warm up to you)
 
